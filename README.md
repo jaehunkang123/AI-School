@@ -1,1 +1,1 @@
-# ai-course-ms-
+# ms ai school
